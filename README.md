@@ -1,0 +1,7 @@
+Hi I'm uh Enniu / Spencer . read mny carrd or something idk!
+
+
+<!---
+Plutopawzz/Plutopawzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
