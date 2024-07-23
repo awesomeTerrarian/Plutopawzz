@@ -1,4 +1,4 @@
-Hi I'm uh Enniu / Spencer . read mny carrd for more info ! dont cover/copy please ^^;; inspo is fine ! feel free to talk to me [ unless i have busy status, you can still talk but i likley wont respond ] 
+Hi I'm uh Enniu / Spencer . read mny strawpage for more info ! dont cover/copy please ^^;; inspo is fine ! feel free to talk to me [ unless i have busy status, you can still talk but i likley wont respond ] 
 
 
 <!---
