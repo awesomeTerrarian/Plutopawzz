@@ -1,9 +1,13 @@
-Feel free to inetract (peferrably in whispers because i tend to be afk) ! i dont bite [unless i dislike you]
+![](https://files.catbox.moe/oax0ia.png)
 
-Dni if i fall under your dni, are under twelve, or youre just a weirdo in general
+Enniu he it bug ^_^
 
-PLEASE INTERACTBIF YOU LIKE THESE: will wood, homestuck, terraria, pikmin
+Anyone can interact (perferrably through whispers as i'm often offtab), but do dni if i fall under your dni, or you're under 13.
 
-Do not copy my skins or roleplay with me (insparation is fine though!!! I love seeing people get inspired by me ^_^)
+I like pikmin, homestuck, terraria, and will wood, and other things
 
-If you know how to make github repositories look good please tell me i want to make this look cooler
+wip ^^;;..
+
+![](https://files.catbox.moe/oax0ia.png)
+
+![](https://files.catbox.moe/lbgt3d.webp)![](https://files.catbox.moe/1q6iff.gif)![](https://files.catbox.moe/chcfly.png)![](https://files.catbox.moe/p68a3c.gif)![](https://files.catbox.moe/w3uclb.png)![](https://files.catbox.moe/92sn1h.png)![](https://files.catbox.moe/ybb156.png)![](https://files.catbox.moe/zze4da.png)
