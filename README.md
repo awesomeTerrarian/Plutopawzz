@@ -8,7 +8,7 @@ Anyone can interact (perferrably through whispers as i'm often offtab), but do d
 
 I like pikmin, homestuck, terraria, and will wood, and other things
 
-wip ^^;;..
+I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 
 ![](https://files.catbox.moe/oax0ia.png)
 
