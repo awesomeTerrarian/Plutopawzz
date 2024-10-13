@@ -10,6 +10,8 @@ I like pikmin, homestuck, terraria, and will wood, and other things
 
 I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 
+i play on tablet 99% of thetime but sometimes im on desktop (if i type with a ⭐ ;; at the start of my messages im on desktop)
+
 ![](https://files.catbox.moe/oax0ia.png)
 
 ![](https://files.catbox.moe/lbgt3d.webp)![](https://files.catbox.moe/1q6iff.gif)![](https://files.catbox.moe/chcfly.png)![](https://files.catbox.moe/p68a3c.gif)![](https://files.catbox.moe/w3uclb.png)![](https://files.catbox.moe/92sn1h.png)![](https://files.catbox.moe/ybb156.png)![](https://files.catbox.moe/zze4da.png)
