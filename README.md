@@ -17,3 +17,7 @@ i play on tablet 99% of thetime but sometimes im on desktop (if i type with a тн
 ![](https://files.catbox.moe/lbgt3d.webp)![](https://files.catbox.moe/1q6iff.gif)![](https://files.catbox.moe/chcfly.png)![](https://files.catbox.moe/p68a3c.gif)![](https://files.catbox.moe/w3uclb.png)![](https://files.catbox.moe/92sn1h.png)![](https://files.catbox.moe/ybb156.png)![](https://files.catbox.moe/zze4da.png)
 
 ![](https://files.catbox.moe/jaxumc.gif)![](https://files.catbox.moe/46009h.png)![](https://files.catbox.moe/srqkf6.webp)![](https://files.catbox.moe/jj7oz4.png)![](https://files.catbox.moe/fk3gm7.png)![](https://files.catbox.moe/gw21qd.webp)![](https://files.catbox.moe/nygrhw.png)![](https://files.catbox.moe/cewjfl.webp)
+
+![image](https://github.com/user-attachments/assets/ee850c5f-3aca-48b5-a7ff-d279dace812c)![image](https://github.com/user-attachments/assets/1b39c527-a4c2-4e24-9fb6-870ffd8026dc)![image](https://github.com/user-attachments/assets/4d29c6d8-038d-4f52-8627-54bf94d15ca7)![image](https://github.com/user-attachments/assets/08f89514-8fc8-451d-b154-cab898b2edcc)![image](https://github.com/user-attachments/assets/f0942820-85fb-4a02-97ef-5c09b0f29664)![image](https://github.com/user-attachments/assets/e0e790e3-d4c3-411e-ba20-1fb90fc8622f)
+
+
