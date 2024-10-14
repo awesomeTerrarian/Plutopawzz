@@ -10,6 +10,8 @@ I like pikmin, homestuck, terraria, and will wood, and other things
 
 I block freely (and encourage you to do the same, if i dont fw someone i block them lol)
 
+Also if you have a eyestrainy skin i may hide you. i do not fw eye strains
+
 i play on tablet 99% of thetime but sometimes im on desktop (if i type with a ⭐ ;; at the start of my messages im on desktop)
 
 ![](https://files.catbox.moe/oax0ia.png)
