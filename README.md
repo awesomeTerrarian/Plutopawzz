@@ -14,7 +14,7 @@ Also if you have a eyestrainy skin i may hide you. i do not fw eye strains
 
 i play on tablet 99% of thetime but sometimes im on desktop (if i type with a ⭐ ;; at the start of my messages im on desktop)
 
-!!! if you see me on a server tahts not safe serv im likley collecting candy xp
+c+h is fine unless otherwise
 
 ![](https://files.catbox.moe/oax0ia.png)
 
