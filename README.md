@@ -4,6 +4,8 @@
 
 ![](https://files.catbox.moe/oax0ia.png)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nlxgfjxx4ezh3trhymv2ij57um&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 Enniu he it bug ^_^
 
 Anyone can interact (perferrably through whispers as i'm often offtab), but do dni if i fall under your dni, or you're under 13.
@@ -16,13 +18,11 @@ i play on tablet 99% of thetime but sometimes im on desktop (if i type with a �
 
 c+h is fine unless otherwise
 
-🟢 = Im online! Feel free to int
+🟢/💬 = Im online! Feel free to int
 
 🌙 = Im online! but likley offtab (pls int through whispers)
 
 ⛔ = Busy, probably wont respond to anything
-
-🗨️ = see 🟢
 
 ![](https://files.catbox.moe/oax0ia.png)
 
