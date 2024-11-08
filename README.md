@@ -22,7 +22,7 @@ c+h is fine unless otherwise
 
 🌙 = Im online! but likley offtab (pls int through whispers)
 
-⛔ = Busy, probably wont respond to anything
+⛔ = Busy, probably wont respond to anything + may have whispers off
 
 ![](https://files.catbox.moe/oax0ia.png)
 
