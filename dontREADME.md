@@ -1,5 +1,7 @@
 ![](https://files.catbox.moe/4a9i1x.jpg)
 
+probably outdated i'm not updating this Sorry
+
 ![](https://komarev.com/ghpvc/?username=plutopawzz&color=189bcc&style=for-the-badge)
 
 ![](https://files.catbox.moe/oax0ia.png)
